@@ -1,0 +1,1 @@
+# coreldraw-2026-version
